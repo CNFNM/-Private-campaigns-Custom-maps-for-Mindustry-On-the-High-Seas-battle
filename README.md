@@ -5,12 +5,12 @@ Each map has its own tasks,you can try your best to complete them or choose not 
 Upload in January.
 Made by (CN)方柠檬FNM
 Acknowledgement List:
-1st.(CN)方柠檬FNM for making maps:
+1st.(CN)方柠檬FNM for making maps & making tasks:
 the first map:Skirmish of the Beginning(出航遭遇战）
 the second map:Oilwell Defense Battle (Part 1)（油井保卫战（上））
 the third map:Oilwell Defense Battle (Part 2)(油井保卫战（下））
 the final map:High Seas decisive battle(公海决战）
-2nd.my classmate:Bro.Zeng(曾老弟）for making maps:
+2nd.my classmate:Bro.Zeng(曾老弟）for making maps & for making tasks:
 the fourth map:Under the Zenith!(苍穹之下！）
 the fifth map:Keep chasing（持续追击）
 3rd.my classmate:MaXin(马鑫) for making maps:
