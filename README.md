@@ -1,4 +1,4 @@
-# -Private-campaigns-Custom-maps-for-Mindustry-On-the-High-Seas-battle
+Private-campaigns-Custom-maps-for-Mindustry-On-the-High-Seas-battle
 The custom maps for Mindustry.(You can play it like original game's campaign)
 First map maybe is the most difficult,you can choose not to play it.
 Each map has its own tasks,you can try your best to complete them or choose not to mind them.
