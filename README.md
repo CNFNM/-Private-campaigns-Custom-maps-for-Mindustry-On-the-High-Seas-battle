@@ -4,8 +4,6 @@ First map maybe is the most difficult,you can choose not to play it.
 Each map has its own tasks,you can try your best to complete them or choose not to mind them.
 Upload in January.
 Made by (CN)方柠檬FNM
-+
--
 Acknowledgement List:
 1st.(CN)方柠檬FNM for making maps:
 the first map:Skirmish of the Beginning(出航遭遇战）
